@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me: **anatolii.khyzun@gmail.com**
 
-- 📄 Resume link [*click*](https://drive.google.com/file/d/1p05PsFkcCKBgIMZ7u0Z0p2inm3r5_Wcz/view?usp=sharing)
+- 📄 Resume link [*click*](https://drive.google.com/file/d/1UgcbM1Ycc8NESh2BEB_2lo-WO-eSCEtM/view)
 
 - ⚡ Fun fact:  **My dream vacation is going to the UK and ride on the second floor of a big red bus**
 
